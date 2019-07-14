@@ -80,7 +80,7 @@ The result is a broad range of principles, that our candidates will be
 proud to stand on.
 
 For more information get in touch with our policy 
-[coordination team](policy@pirateparty.org.uk).
+[coordination team](mailto:policy@pirateparty.org.uk).
 
 You can find our Snap General Election 2017 Pirate Manifesto 
 [here](https://pirateparty.org.uk/sites/default/files/library/NationalManifesto.pdf).
