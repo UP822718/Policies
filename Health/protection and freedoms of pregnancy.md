@@ -1,6 +1,26 @@
 protection and freedoms of pregnancy
 =============================================
-will protect the right to abortion as it stated under  Abortion Act 1967 of  England and Wales and Scotland.
+will extended the right to abortion as it stated under  Abortion Act 1967 of  England and Wales and Scotland.
+
+this includes the following clauses of the Act.
+
+* all Abortion will have to be signed off by all genetic parents in all cases. this include foetus with three biological parents. the exceptions are
+
+  * if I biological parent is unknown and there is no suspected biological parent that is willing to do a test and matches then the mothers sole signature should be enough
+
+  * If someone has power of attorney they can sign for them
+
+  * pregnancy through rape
+
+  * one of the biological parents unable to keep a child under the United Nations Convention on the Rights of the Child
+
+* the pregnancy has not exceeded its twenty-fourth week.
+
+  * the abortion of the pregnancy of injury to the physical or mental health of the pregnant woman or any existing children of her family;
+
+* the termination is necessary to prevent grave permanent injury to the physical or mental health of the pregnant woman;
+
+* continuing the pregnancy would involve risk to the life of the pregnant woman (greater than if the pregnancy were terminated);
 
 the pirate party will change the law to repeal the following from the Abortion Act 1967.
 
