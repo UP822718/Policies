@@ -1,8 +1,7 @@
 
 Public Transport and Cycles
 ============================
-
-we will build new, environmentally friendly public transport (bus, trains and trams) and will expand on the current offering of public transportation.
+We will build new, environmentally friendly public transport (bus, trains and trams) and will expand on the current offering of public transportation.
 
 We also look at ways of adding safe cycle routes which are the cycle tracks or cycle path but not cycle lanes because they are unsafe down to the fact that drivers use the White line as a guide and Incredibly drive Close to that. We will also add traffic lights and other traffic control measures. Improving public transport and cycles infrastructure will allow the normal flow of traffic and cyclists to be safe on the road together without causing accidents; this will happen without mixing the car and cycles.
 
