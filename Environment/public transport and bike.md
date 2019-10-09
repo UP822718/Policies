@@ -8,4 +8,4 @@ We also look at ways of adding safe cycle routes which are the cycle tracks or c
 
 Having more public transport and cycles will make it more convenient for people to get around down to the fact that people that are unable to drive don't have to wait for a lift they might be able to get on the cycles or public transport. Additionally, it will cause less traffic on the road because cycles and public transport take up less space on the public highways per person than cars.
 
-When this document mentions cycles, it is talking about but not limited to bike, E-bike, scooters, E-scooters, hoverboards, tricycle, E-tricycle, skateboards and electric skateboards. This list is not extensions to all examples.
+This will, in turn, allow better participation by all members of society. The people who can drive will have less traffic on the road, allowing to quickly get to where they are trying to be with less chance on being in a traffic jam. The people who are unable to drive can use public transport or cycles. This will allow more members of society access services and infrastructure by enabling them better access to places like NHS, libraries, the job centre, work and school.
